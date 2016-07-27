@@ -1,0 +1,2 @@
+# With-this-proprietary-combination
+fats loss. Believe in view that the receptors as locks and androgen’s as amazing keys, with some keys (androgen’s) opening (binding) the locks (receptors) a lot better than others. This is not to say that AR-binding is the final phrase on a steroids effectiveness. Anadrol doesnt have any measurable binding to the AR&amp; and everyone knows how amazing Anadrol is for mass-constructing. http://drozforskolin.org/alpha-performance-enhancer-reviews/
